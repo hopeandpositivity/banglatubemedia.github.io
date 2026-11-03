@@ -6,7 +6,7 @@ BanglaTube Media is a Bangla digital content platform dedicated to Islamic educa
 For business inquiries, content collaboration, video production, and digital media services, feel free to contact us.
 
 - **Brand:** BanglaTube Media
-- **Email:** [muhabbotmedia@gmail.com](mailto:muhabbotmedia@gmail.com)
+- **Email:** [muhabbotmedia@gmail.com](mailto:muhabbothossainpabna@gmail.com)
 - **YouTube:** [BanglaTube Media](https://youtube.com/@banglatube-media)
 
 We welcome collaboration opportunities, creative partnerships, and professional inquiries.
